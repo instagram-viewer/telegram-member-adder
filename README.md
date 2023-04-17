@@ -1,2 +1,2 @@
 # telegram-member-adder
-https://telegram-member-adder.com Telegram members
+Buy Telegram members https://telegram-member-adder.com
